@@ -22,27 +22,27 @@ As he is walking away with a broken heart and no bicycle, he bumps into a girl (
 - - -
 
 ##Scene List
-[Scene 1 - Introducing Krampus](#Scene-1)
+[Scene 1 - Introducing Krampus](#scene-1)
 
-[Scene 2 - Revealing Krampus](#Scene-2)
+[Scene 2 - Revealing Krampus](#scene-2)
 
-[Scene 3 - Off to the Market](#Scene-3)
+[Scene 3 - Off to the Market](#scene-3)
 
-[Scene 4 - Shopping](#Scene-4)
+[Scene 4 - Shopping](#scene-4)
 
-[Scene 5 - First sign of trouble](#Scene-5)
+[Scene 5 - First sign of trouble](#scene-5)
 
-[Scene 6 -Dissolution](#Scene-6)
+[Scene 6 -Dissolution](#scene-6)
 
-[Scene 7 -More trouble](#Scene-7)
+[Scene 7 -More trouble](#scene-7)
 
-[Scene 8 - Introduce Love Interest](#Scene-8)
+[Scene 8 - Introduce Love Interest](#scene-8)
 
-[Scene 9 - Build Romance](#Scene-9)
+[Scene 9 - Build Romance](#scene-9)
 
-[Scene 10 - Re-establish Krampus (family)](#Scene-10)
+[Scene 10 - Re-establish Krampus (family)](#scene-10)
 
-[Scene 11 - The 'Ask'](#Scene-11)
+[Scene 11 - The 'Ask'](#scene-11)
 
 - - -
 
